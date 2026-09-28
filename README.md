@@ -1,1 +1,1 @@
-Profil Portofolio Tegar Rasyid Al Aziz
+Profil Portfolio Tegar Rasyid Al Aziz
